@@ -11,5 +11,5 @@
 
 
  [RENTRY](https://rentry.co/heartlesslover)<img width="30" height="30" alt="17836372689644834384022513925621" src="https://github.com/user-attachments/assets/b689ec5b-c321-4a48-9dc9-0e4762a25944" />
- [SP](https://august-10.straw.page)
+ [SP](https://heartlesslover.straw.page)
 
